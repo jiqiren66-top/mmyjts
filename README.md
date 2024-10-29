@@ -5,8 +5,8 @@
 让每个深夜都充满温馨与希望。<br>
 
 ✨重要提醒✨收藏本页面，避免迷路！<br>
-❤️ 👉 【最新地址】 ：https://最新.geidizhi.buzz/《卫生纸》<br>
-❤️ 👉 【官网地址】 ：https://官方.bumilu.buzz/《遥控器》<br>
+❤️ 👉 【最新地址】 ：https://最新.geidizhi.buzz/《热水壶》<br>
+❤️ 👉 【官网地址】 ：https://官方.bumilu.buzz/《保温杯》<br>
 ❤️ 👉 【更多地址】 ：https://yongjiufabu.github.io/<br>
 官网永久地址发布：https://wangjidizhi.com<br>
 ## 怎么快速找到丨**秘密研究所好好学习入口探索**呢？
